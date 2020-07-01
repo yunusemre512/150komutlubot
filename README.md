@@ -1,0 +1,2 @@
+# 150komutlubot
+wdqwdqsqwdqwsqdwwdqes
